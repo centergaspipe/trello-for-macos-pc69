@@ -1,4 +1,4 @@
-
+Get the ultimate Trello for macOS extension with Trello for macOS instant Extension: auto-sync & cloud backup. Featuring auto-sync and cloud backup, it's the best choice for macOS
 
 
 
